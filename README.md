@@ -32,6 +32,6 @@
 意图契合：紧贴用户搜索目的：免费+高清+便捷+分类齐全；
 
 用户体验优先：强调不卡、免注册、每日更新、支持手机端。
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/tnnn2611/99999999 ）</span>
 
 
